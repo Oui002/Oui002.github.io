@@ -1,3 +1,3 @@
 ## Welcome to my home page!
 
-### Stuffy [invite (currently not available yet)](https:)
+### Stuffy [invite](https:) (currently not available yet)
